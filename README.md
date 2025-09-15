@@ -1,2 +1,2 @@
-# Luminar.EXE
+# WALA MEMA LANG
 I dunno
